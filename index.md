@@ -9,7 +9,11 @@ We are conducting the first round of an online survey in October 2020. We plan t
 If you have any questions or comments about the survey or the research project, please send us an e-mail to: [survey.women.politics@gmail.com](mailto:survey.women.politics@gmail.com)
 
 Servacious Likwelile (University of Dar es Salaam)
+
 Joel Lincoln (University of Dar es Salaam)
+
 Pablo Selaya (University of Copenhagen)
+
 Sina Smid (Copenhagen Business School)
+
 Edith Zink (University of Copenhagen)

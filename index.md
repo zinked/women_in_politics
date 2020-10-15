@@ -1,6 +1,4 @@
-# Women in Politics
-
-Welcome 
+# Welcome 
 
 This repository contains information and preliminary results on our research project on the participation and representation of women in politics in Tanzania.
 
